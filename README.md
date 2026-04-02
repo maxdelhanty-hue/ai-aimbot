@@ -1,2 +1,2 @@
 U need python 
-run it in fortnite and your good!
+run it in fortnite only
